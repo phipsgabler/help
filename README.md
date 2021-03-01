@@ -223,7 +223,7 @@ ausgewählt. Ihr Referenzcode lautet COVID-19/RELIEF0006-13-2021-1061/UN-IMF-009
 Um Ihr vergebenes Geld zu beanspruchen, senden Sie bitte Ihre Referenznummer, Ihre persönlichen
 Daten, Unternehmensdaten, die Anzahl der Mitarbeiter, die gescannte Kopie Ihres internationalen
 Passes / Ihrer nationalen Identität und Ihren Fotopass an die E-Mail-Adresse der Zahlungsabteilung:
-info@solidarityrelieffunds.com. Beachten Sie, dass das Geld über unsere Bank direkt auf Ihr
+xxx@yyy.com. Beachten Sie, dass das Geld über unsere Bank direkt auf Ihr
 Bankkonto überwiesen wird. Bitte geben Sie Ihre Bankkontodaten an, um das Geld zu überweisen. Einer
 unserer Zahlungsbeauftragten wird sich umgehend mit Ihnen in Verbindung setzen und die sofortige
 Auszahlung Ihres Geldes über unsere Korrespondenzbank (innerhalb von 24 Stunden) erleichtern.
@@ -286,7 +286,7 @@ Coronavirus-Darlehensentlastungsprogramms anbieten.
 Wir bieten Betriebskapital, Erweiterungs- / Renovierungsdarlehen, Immobiliendarlehen, Baudarlehen,
 Schuldenkonsolidierung, Unternehmensrefinanzierungsdarlehen sowie kleine und große
 Unternehmensdarlehen an. Für weitere Informationen kontaktieren Sie uns per E-Mail:
-info@scotiafinanceltd.com. Beachten Sie, dass wir keine Sicherheiten benötigen und die Optionen für
+xxx@yyy.com. Beachten Sie, dass wir keine Sicherheiten benötigen und die Optionen für
 die Rückzahlung zwischen 12 Monaten und 20 Jahren liegen.  Sobald wir Ihre Kreditanfrage erhalten
 haben, senden wir Ihnen die Kreditbedingungen umgehend zu.  Sie müssen Ihre Kreditanfrage über diese
 E-Mail senden: xxx@yyy.com
