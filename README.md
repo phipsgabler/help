@@ -298,6 +298,44 @@ Scotia Finance
 46 King St W, Toronto, ON M5H 1H1
 
 
+## Dringendes Darlehen
+
+ROCK FUNDING FIRM
+Hauptsitz - 10a Great Sutton Street London EC1V 0DU VEREINIGTES KÖNIGREICH
+EMAIL-ADRESSE --- (xxx@gmail.com)
+------------------------------ -------------------- ---------- --------
+Willkommen bei ROCK FUNDING FIRM Wir vergeben Kredite im Bereich von
+€1.000 bis €900.000.000 zu 2% Zinssatz
+Wir bieten alle Arten von Darlehen unten -
+
+* Projekt darlehen
+* Persönliche Darlehen
+* Schuldenkonsolidierungs darlehen
+* Autokredite
+* Geschäfts kredite
+* Bildungs darlehen
+* Hypotheken darlehen
+* Refinanzierungs darlehen
+* Wohnungsbau darlehen
+
+Bitte bewerben Sie sich
+Name .......................
+Land......................
+benötigte Kreditmenge ........
+Telefonnummer.................
+
+GRÜSSE
+VERA RUSSELL
+TELL .. +44 1204 nnn nnn
+WHATSAPP .. + 44 1204 nnn nnn
+FAX .. +1 705 nnn nnnn
+www.xxx.yyy.com
+ROCK FUNDING FIRM
+
+Welcome to ROCK FUNDING FIRM We give out loans from the range of €1,000
+to €900,000,000 at 2% interest rate 
+
+
 ##  Alkoholismus
 
 ![Alkoholismus](images/alkoholismus.png)
