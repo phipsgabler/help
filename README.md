@@ -336,6 +336,108 @@ Welcome to ROCK FUNDING FIRM We give out loans from the range of €1,000
 to €900,000,000 at 2% interest rate 
 
 
+## BITTE BEACHTEN!
+
+Oficina De Abogados Lawyer Dr/Gustavo LM Larraz
+Web:www.xxx.org/lawyer
+E-mail : xxx@yyy.com
+Tele/ +34 nnnnnn
+Direcion: Calle de Diego de León 47
+Madrid 28006 Espana
+MENSCHENRECHT FONDS VERTEIDIGEN BÜRO/
+
+Ich war versuchen Kontakt Sie für über zwei Wochen,
+aber du hast nicht Antworten meine E-Mail. WARUM ?
+
+übersetzte Kopie.
+Bitte lesen Sie vorsichtig und verstehen/
+
+Mein Name ist Dr.Gustavo Lopez y Larraz
+Vom Menschen Richtig Mittel Freisetzung Büro.
+Wir haben gute Nachrichten für Sie.
+Ich haben Ihre Informationen, daher müssen wir bestätigen von Ihnen,
+dass diese Kontat Ihnen gehört.
+
+Ihre langjähriges Geld wurde von der freigegeben
+International monetary Geldmittel Büro (IMF)
+Nur Sie haben rechtmäßigen Zugang zu diesen Geldern
+die auch vom Lotteriebüro der Europäischen Union genehmigt wurden.
+
+Der Betrag ist derzeit € 1,980,500.00 Die weiteren Informationen
+wird dir zugesandt sobald ich bestätigen dass
+du die rechtmäßige Person, bist das besitzt das E-Mail-Addresse/Kontat
+
+Senden Sie uns diese Informationen unten
+Ich senden Ihnen die vollständigen Details und das Be.
+Die Fonds befinden sich derzeit in der Bank.
+
+Bitte bestätigen Sie Ihre Informationen erneut /
+a) Vollständiger Name: __ __ _
+b) DIREKTE E-MAIL-ADRESSE: _ _ _ _ _
+C) ADRESSE & POSTCODE: _ _ _ _ _ _
+D) TELE / MOBIL: ___ _ ___ _
+
+Anmerkung: Mein Anliegen
+Sobald Sie diese Fonde erhalten, von der Bank
+Sie werden mich bezahlen, und Büro 25% von den Mitteln,
+
+Freundliche Grüße
+
+Dr.Gustavo Lopez-M.y Larraz
+Delegation D-ME in der EU-Montenegro
+Association parliament
+Tele / +34 nnnnnnn
+Kontakt E-Mail : xxx@yyy.com
+
+©1995-2020 All Rights Reserved HG.org Legal Resources - HGExperts.com
+
+
+## Vielen Dank von Andy
+
+Schöne Grüße Ich bin Rechtsanwalt Andy Owen von einer Anwaltskanzlei . Ich komme ursprünglich aus
+Großbritannien. Ich habe einen Geschäftsvorschlag, um einen guten Geschäftsplan anzubieten Ich
+brauche einen ausländischen Partner, der mich unterstützt Geschäft mit möglichen und zuverlässigen
+Investitionen in Ihre Land.
+
+Es ist ein Erbschaftsfonds im Wert von £ 4.500.000,00 Millionen Pfund links in der UBS in der
+Investmentbank London. Mein verstorbener Klient ist Staatsbürger Ihres Landes. Ich brauche deine
+größte Hilfe, damit die Bank Ich werde Ihnen den Fonds als Verwandten freigeben. Ich habe alle
+Dokumente in meiner Obhut, um mit dieser Forderung fortzufahren. Ich werde Ihnen weitere
+Einzelheiten mitteilen, sobald ich Ihre positiven Antworten bestätige.
+
+Vielen Dank Rechtsanwalt
+Andy Owen
+
+
+## Herzliche Glückwünsche von Oxfam
+
+Ihre E-Mail hat Ihnen als Community die Summe von 2.000.000,00 €
+eingebracht Spende von Oxfam Aid, für weitere Informationen
+kontaktieren Sie uns mit Ihrem Qualifikationsnummer {OXG / 111/461
+/BDB} so bald wie möglich.
+
+Betriebsleiter
+Für mehr Informationen
+E-Mail: xxx@outlook.com
+
+Bitte beachten Sie, dass dies an einem kleinen Netzwerk liegt, wenn
+Sie diese E-Mail in Ihrem Spam finden.
+
+
+## Glückwunsch von der UN
+
+Glückwunsch,
+
+Aufgrund der Corona-Virus-Pandemie haben die Vereinten Nationen beschlossen, so viele Menschen auf
+der ganzen Welt mit jeweils 5.000.000 Euro zu belohnen.
+
+Ihre E-Mail-Adresse gehört zu den glücklichen Gewinnern. Um Ihren Gewinnpreis zu erhalten,
+kontaktieren Sie uns bitte unter xxx@yyy.org mit dem vollständigen Namen Land und Telefonnummer,
+Beruf und monatlichem Einkommen.
+
+Vereinte Nation
+
+
 ##  Alkoholismus
 
 ![Alkoholismus](images/alkoholismus.png)
@@ -386,3 +488,7 @@ to €900,000,000 at 2% interest rate
 ## Theresa May
 
 ![Theresa May](images/theresa_may.jpg)
+
+## Einfach, schnell, mit Garantie
+
+![Kreditkarte auchy bei schlechter Bonität](images/visa_infinite.jpeg)
