@@ -492,3 +492,7 @@ Vereinte Nation
 ## Einfach, schnell, mit Garantie
 
 ![Kreditkarte auchy bei schlechter Bonität](images/visa_infinite.jpeg)
+
+## Garantierter Kreditrahmen
+
+![Noch unrealistischer...](images/kreditrahmen.jpeg)
