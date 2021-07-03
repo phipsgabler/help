@@ -3,7 +3,7 @@
 An assorted collection of email spam messages, should you ever be in need of one.
 
 
-## Invesition
+## Investition
 
 Ich möchte einen ernsthaften und sensiblen Geschäftsvorschlag mit Ihnen über eine angemessene Menge
 an Investitionskapital besprechen.
@@ -174,7 +174,9 @@ Rampenlicht von Ruhm, Reichtum, Macht und Sicherheit, werden Sie in Ihrem Gesch�
 politischen Rasse anerkannt, steigen Sie bei allem, was Sie tun, an die Spitze, bleiben Sie geistig
 und körperlich geschützt! All dies erreichen Sie im Handumdrehen, wenn Sie in das große
 Illuminati-Reich eingeweiht werden. Sobald Sie in das Illuminati-Reich eingeweiht sind, erhalten Sie
-zahlreiche Vorteile und Belohnungen.
+zahlreiche Vorteile und Belohnungen. Sind Sie damit einverstanden, Mitglied der neuen Weltordnung der
+Illuminaten zu sein? Antworten Sie einfach mit JA! über die Rekrutierungs-E-Mail: 
+xxx@yyy.com und wir werden uns in Kürze mit Ihnen in Verbindung setzen. 
 
 Hinweis: Diese E-Mail-Nachricht wurde ausschließlich zum Zweck unseres Rekrutierungsprogramms
 erstellt, das nächsten Monat endet. Dieses Angebot gilt nur für Einzelpersonen. Wenn Sie es nicht
@@ -436,6 +438,46 @@ kontaktieren Sie uns bitte unter xxx@yyy.org mit dem vollständigen Namen Land u
 Beruf und monatlichem Einkommen.
 
 Vereinte Nation
+
+
+## Geschenk des Vermögen/Ball im Gehirnkäfig
+
+Hallo oder Guten Abend, je nachdem, wann du mich gelesen hast.
+
+Ich entschuldige mich für dieses Eindringen, mein Name ist Marguerite
+Nada, geboren am 31. Mai 1938 aus Frankreich.
+
+Es wird Ihnen ein wenig misstrauisch erscheinen, obwohl es wahr ist,
+dass Sie mich nicht kennen und dass ich Sie nicht kenne.
+
+Ich leide an Hirnkrebs, der sich in der Endphase befindet. Mein
+behandelnder Arzt hat mir gerade mitgeteilt, dass meine Tage aufgrund
+meines verschlechterten
+Gesundheitszustands gezählt sind.
+
+Laut dem, was der Arzt mir erklärt hat, setzt sich derzeit ein Ball in
+meinem Gehirnkäfig ab.
+
+Ich habe diese Krankheit seit mehr als 4 Jahren.
+Ich bin Witwe und habe keine Kinder bekommen.
+
+Ich habe vor, mein gesamtes Eigentum zu spenden.
+Ich hätte fast mein Geschäft verkauft, einschließlich einer
+Holzexportfirma hier in Frankreich, wo ich seit fast 15 Jahren lebe.
+Derzeit habe ich auf meinem persönlichen Konto die Summe von 500.000
+Euro, die ich für ein Bauprojekt aufbewahrt hatte.
+Können Sie dieses Geschenk, das ich Ihnen anbiete, gut nutzen?
+
+Ein Teil dieses Geldes wird an verschiedene Verbände, Hilfszentren,
+Waisen und Obdachlose gespendet.
+
+Bitte kontaktieren Sie mich so schnell wie möglich, wenn Sie meinem
+Angebot direkt per E-Mail zustimmen, da ich diese E-Mail am häufigsten
+konsultiere.
+
+Möge der Friede und die Barmherzigkeit Gottes mit Ihnen sein.
+
+Marguerite Nada
 
 
 ##  Alkoholismus
