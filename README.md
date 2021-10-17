@@ -479,6 +479,21 @@ Möge der Friede und die Barmherzigkeit Gottes mit Ihnen sein.
 
 Marguerite Nada
 
+## Großzügige Spende
+
+Hallo,
+
+Sie haben eine Spende von 3.500.000,00 Euro von Bill Lawrence, einem Powerball-Lotteriegewinner, im Wert von 150 Millionen US-Dollar.
+
+Ihre E-Mail-Adresse wurde nach dem Zufallsprinzip ausgewählt, um die 3.500.000,00 EUR zu erhalten, wenn Sie uns über die untenstehenden Details kontaktieren möchten.
+
+Bitte kontaktieren Sie den Spender für weitere Anweisungen,
+E-MAIL: xxx@yyy.com
+
+Grüße
+Bill Lawrence
+Spende
+
 
 ##  Alkoholismus
 
