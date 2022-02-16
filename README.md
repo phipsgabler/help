@@ -494,6 +494,13 @@ Grüße
 Bill Lawrence
 Spende
 
+## Dringend: Spende
+
+hallo ich bin eine frau mit schweizer nationalität, ich möchte dich
+980.000 Schweizer Franken vor meinem Tod spenden Dies ist eine Spende und eine gute Nächstenliebe, die ich vor meinem Tod tun möchte.
+Bitte antworten Sie mir für weitere Informationen.
+Der Friede Christi Amen
+
 
 ##  Alkoholismus
 
