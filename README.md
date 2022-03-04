@@ -479,6 +479,7 @@ Möge der Friede und die Barmherzigkeit Gottes mit Ihnen sein.
 
 Marguerite Nada
 
+
 ## Großzügige Spende
 
 Hallo,
@@ -494,12 +495,36 @@ Grüße
 Bill Lawrence
 Spende
 
+
 ## Dringend: Spende
 
 hallo ich bin eine frau mit schweizer nationalität, ich möchte dich
 980.000 Schweizer Franken vor meinem Tod spenden Dies ist eine Spende und eine gute Nächstenliebe, die ich vor meinem Tod tun möchte.
 Bitte antworten Sie mir für weitere Informationen.
 Der Friede Christi Amen
+
+
+## Urgent Response Needed
+
+Hello ,
+
+My name is Doctor Kinderknec James of Ontario Hospital Association- USA.
+
+I'm contacting you in respect of my patients who died of COVID-19 here
+in  our Hospital on June 19, 2021, few days before he passed out , He
+asked me  to contact you or any of his relatives or distant cousins
+concerning the  claim of his private property and Estate Value @ $15.2
+Million in the bank  and after several attempt of posting you letters
+with no response I decided  to try email I don't know if you have
+claim the properties and funds before now.
+
+Kindly get back to me as soon as you get this mail and funds will be
+given to you once you confirm your interest by sending your full
+names, home/office address and occupation to my email address:(
+xxx@yyy.com )
+
+Thanks
+Dr. Kinderknec James
 
 
 ##  Alkoholismus
