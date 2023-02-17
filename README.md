@@ -526,6 +526,30 @@ xxx@yyy.com )
 Thanks
 Dr. Kinderknec James
 
+## Telegraphie
+
+Sehr geehrter Kunde,
+
+TELEGRAFISCHE ÜBERTRAGUNGSMITTEILUNG.
+
+Wir benachrichtigen Sie hiermit offiziell über Ihre telegrafische Überweisung durch unsere Bank, die ING Bank N.V. Vereinigtes Königreich, auf Ihr Bankkonto, das vom britischen Ministerium für internationale Entwicklung (DFID) offiziell genehmigt wurde, um die Summe von fünf Millionen acht gutzuschreiben Hundert US-Dollar aus dem laufenden Global Development Collaboration Partnership Program auf Ihr Bankkonto. Die Referenznummer Ihrer Zahlungsdatei lautet (ING/0601922/DFID).
+
+Dieser Fonds ist Teil der Einlage des International Finance Corporation Multi-Donor Infrastructure Development Collaboration Partnership Fund (DevCo) bei unserer Bank, die die Private Infrastructure Development Group (PIDG) großzügig auszahlt, um wenigen glücklichen Menschen weltweit zu helfen, und die Das Außenministerium der Niederlande (DGIS) und die schwedische Agentur für internationale Entwicklungszusammenarbeit (Sida) sind mit unserer Bank überein, diesen Fonds an die 700.000 ausgewählten Begünstigten dieses Projekts auszuzahlen, um ihre Geschäfte zu verbessern und Beseitigung der Armut in ihrer Gesellschaft.
+
+Alle Begünstigten wurden über eine globale E-Mail-Datenbank über das Internet Global Research Management Board ausgewählt, glückliche Begünstigte wie Sie müssen kein Ticket kaufen, um an diesem Programm teilzunehmen. Barrister Serena Garrison wird in Ihrem Namen handeln, um ein Non-Residential Clearance Form für die sofortige Freigabe Ihres Geldes zu erhalten. Bitte beachten Sie, dass unsere Bank mit der Bearbeitung Ihrer Zahlung begonnen hat und alles, was mit der sofortigen Überweisung Ihres Geldes zu tun hat, innerhalb kürzester Zeit ab dem Zeitpunkt, an dem wir Ihre Informationen erhalten haben, durchgeführt wird.
+
+Senden Sie daher Ihre Daten wie Ihren vollständigen Namen: Ihre Adresse: Ihre Telefonnummer: mit Ihrer Referenznummer für die Zahlungsdatei: (ING/0601922/DFID) für die sofortige Freigabe Ihres Geldes.
+
+Für weitere Einzelheiten und Unterstützung zu dieser Überweisungsbenachrichtigung senden Sie mir Ihre Informationen direkt per E-Mail an (xxx@yyy.com).
+
+Mit freundlichen Grüßen,
+Herr Tanate Phutrakul
+ING-Gruppe und Bank
+Finanzvorstand
+XXX 500
+1081KL Amsterdam, NL.
+Tel: +31 XXXXXXXX.
+
 
 ##  Alkoholismus
 
