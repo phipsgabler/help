@@ -551,6 +551,20 @@ XXX 500
 Tel: +31 XXXXXXXX.
 
 
+## Vorschlag zum gegenseitigen Vorteil
+
+Hallo,
+
+Ich bin mir bewusst, dass es etwas ungewöhnlich ist, Sie direkt zu kontaktieren, um ein Geschäft im Wert von 38,550 Millionen Pfund zu besprechen, von dem wir beide profitieren werden, aber ich habe mich dazu entschlossen.
+ssw
+Bitte setzen Sie sich so bald wie möglich mit mir in Verbindung, wenn diese Angelegenheit für Sie von Interesse sein könnte. Ich werde Ihnen dann weitere Informationen zukommen lassen, die spezifisch genug sind, um Ihnen die Entscheidung zu erleichtern, ob Sie fortfahren möchten.
+
+MfG,
+
+Jon Ned
+Probate
+
+
 ##  Alkoholismus
 
 ![Alkoholismus](images/alkoholismus.png)
