@@ -565,6 +565,19 @@ Jon Ned
 Probate
 
 
+## Wieder die Illuminati
+
+Sind Sie ein Geschäftsmann/eine Geschäftsfrau, ein Politiker, ein Musiker, ein Student oder ein Fußballspieler und möchten im Leben reich, mächtig und berühmt sein? Sie können Ihre Träume verwirklichen, indem Sie Mitglied der großen Erleuchtung werden und 300.000,00 USD für die Mitgliedertreue und 1.000.000,00 USD für die Verfechtung des Schicksalswegs verdienen. Damit können alle Ihre Träume und Herzenswünsche vollständig erfüllt werden. Dies ist eine kurze Zusammenfassung. Wenn Sie daran interessiert sind, Mitglied der Great Illuminating zu werden, dann kontaktieren Sie uns für weitere Informationen und Erklärungen zum Beitritt
+
+Sie müssen loyal, ehrlich und ehrlich sein und dies mit niemandem teilen, bis Sie Mitglied des Lichts werden
+
+Herzliche Grüße.
+
+Bruderliche Älteste Elizabeth
+Illuminati-Welt.
+Copyright ©2023 Illuminati
+
+
 ##  Alkoholismus
 
 ![Alkoholismus](images/alkoholismus.png)
